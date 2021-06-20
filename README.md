@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Dahemalq
+- 👀 I’m interested in reading books, watching movies and wroking out.
+- 🌱 I’m currently learning Chemical Engineering Technology
